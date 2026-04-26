@@ -160,9 +160,6 @@ Consider bringing an umbrella with you or wearing a hat if you are going outside
     - [Pure Cold-Pressed Rosehip Seed Oil](https://www.goodmolecules.com/s/good-molecules-pure-cold-pressed-rosehip-seed-oil-13ml)
     - [Bakuchiol Oil Blend for Dry Skin](https://www.goodmolecules.com/s/good-molecules-bakuchiol-oil-blend-for-dry-skin-12ml)
 - Retinoids:
-    - ~~[KSECRET - SEOUL 1988 Serum : Retinal Liposome 2% + Black Ginseng](https://www.yesstyle.com/en/ksecret-seoul-1988-serum-retinal-liposome-2-black-ginseng-30ml/info.html/pid.1126934079)~~
-    - ~~[KSECRET - SEOUL 1988 Advanced Shot : Retinal Liposome 12% + Black Rice](https://www.yesstyle.com/en/ksecret-seoul-1988-advanced-shot-retinal-liposome-12-black-rice-15ml/info.html/pid.1136104494)~~
-    - ~~[DERMA FACTORY - Retinoid 4000ppm Cream - 30ml](https://www.stylevana.com/en_US/derma-factory-retinoid-4000ppm-cream-30ml91635.html)~~
     - [Naturium Retinaldehyde Cream Serum 0.10%](https://www.ulta.com/p/retinaldehyde-cream-serum-010-pimprod2045640?sku=2627246)
         - You might be able to start w this 
     - Minimal also makes a very cheap retinal but i'm not sure if it's encapsulated or how they stablize it.
