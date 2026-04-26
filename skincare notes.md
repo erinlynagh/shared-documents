@@ -31,7 +31,7 @@ If you want a more simple or advanced routine [there is a lot of good content on
 
 ## Routine
 
-You don't have to use everything 2x a day every day. If your skin is irritated you might only wash it at nights.  
+You don't have to use everything 2x a day every day. If your skin is irritated you might only wash it at nights. Also everything should be vegan.
 
 Okay with that being said here are the products I use personally:
 
