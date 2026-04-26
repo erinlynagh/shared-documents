@@ -43,8 +43,6 @@ also known as a [double cleanse](https://www.nytimes.com/wirecutter/reviews/advi
 - [Garnier Balms](https://www.garnierusa.com/about-our-brands/skin-care/makeup-cleansing-balm) cheap and widely available at walmart
 - [Garnier Micellar Water](https://www.garnierusa.com/about-our-brands/skin-care/micellar-cleansing-water/micellar-cleansing-water-all-in-1-waterproof) (i used to use this and it does work fine I just like the oil more, influencers online prefer other brands)
 
-upon investigating someone has mentioned that these often contain polyethylene, which might be a pollutant? it's what microbeads are made of. The Garnier Balms as well as the ELF one has it.
-
 ### 1. Face Wash
 
 so for face wash I really like these right now, but honestly anything works fine. I'm sure whatever you're using right now is great. *One important tip, let it set on your face for a minute before you wash it off! it works better if you let it do it's thing for a while.*
