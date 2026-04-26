@@ -147,6 +147,7 @@ Consider bringing an umbrella with you or wearing a hat if you are going outside
         - Watch a video on how to use this properly
     - [Peach & Lily Transparen-C Pro Spot Treatment w/ Vitamin C](https://www.peachandlily.com/products/transparen-c-pro-spot-treatment-vitamin-c?variant=3944998351674)
     - [COSRX - Advanced The Vitamin C 23 Serum](https://www.yesstyle.com/en/cosrx-advanced-the-vitamin-c-23-serum-20g/info.html/pid.1137018931)
+        - This is probably too strong 
 - Other Serums:
     - [mixsoon - Glacier Water Hyaluronic Acid Serum Jumbo](https://www.yesstyle.com/en/mixsoon-glacier-water-hyaluronic-acid-serum-jumbo-300ml/info.html/pid.1105987485)
     - [Arencia - Deep Water Surge Serum 30](https://www.yesstyle.com/en/arencia-deep-water-surge-serum-30-50g/info.html/pid.1134489875)
