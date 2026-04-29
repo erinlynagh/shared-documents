@@ -20,7 +20,7 @@
 
 AM:
 
-cleanse → tone → vitamin c (if you aren't too irritated) → barrier serum → light moisturizer → sunscreen
+cleanse → tone → vitamin c (if you aren't too irritated) → hydrating serum → barrier serum → light moisturizer → sunscreen
 
 PM:
 

@@ -29,6 +29,8 @@ I'm not sure where else to mention this so I'll throw in that [Paula's Choice In
 
 If you want a more simple or advanced routine [there is a lot of good content on YouTube on how to create a skincare routine](https://www.youtube.com/results?search_query=how+to+build+a+skincare+routine) but in general you should always wear sunscreen outdoors (especially if the [UV index](https://en.wikipedia.org/wiki/Ultraviolet_index) in your area is above 3 and you're white), wash your face and moisturize. From there retinoids are probably the best for most concerns, then maybe add in a AHA toner or more serums. It really depends what you need personally. [This video seems good for a crash course](https://www.youtube.com/watch?v=eEanU3wxMV4).
 
+for steps 3 & 4 there seem to be multiple schools of thought on what order to do. Most suggest low pH to high pH or thinnest to thickest.
+
 ## Routine
 
 You don't have to use everything 2x a day every day. If your skin is irritated you might only wash it at nights. Also everything should be vegan.
