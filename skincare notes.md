@@ -54,6 +54,9 @@ One important tip, let it sit on your face for a minute before you wash it off! 
 ### 2. Toners/Exfoliating
 
 [toners](https://www.byrdie.com/what-does-toner-do) are hydrating and prepping your skin for serums but they also do other things like exfoliate or brighten or whatever. (kind of like serums, honestly the distinction does seem kind of blurry at times for me). I use the Glycolic acid once or twice a week. As mentioned [AHA](https://www.paulaschoice.com/ingredient-dictionary/ingredient-bha-beta-hydroxy-acid.html?q=BHA%20%28Beta%20Hydroxy%20Acid%29&fdid=ingredients) will cause sunburns so it's best to use them at night and in combination with sunscreen in the morning. Another thing to do is to [patch test](https://theordinary.com/en-us/patch-test.html) them before you start using it.
+
+I also recently started using a hydrating toner instead of hyaluronic acid
+
 - [Glycolic Acid 7% Exfoliating Toner](https://theordinary.us.com/products/glycolic-acid-7-exfoliating-toner) (Cheap, really good and highly rated, will last months)
 - [Saccharomyces Ferment 30% Milky Toner](https://theordinary.us.com/products/saccharomyces-ferment-30-milky-toner) 
 - [Good Molecules Niacinamide Brightening Toner 120ml | Good Molecules](https://www.goodmolecules.com/s/good-molecules-niacinamide-brightening-toner-120ml)
