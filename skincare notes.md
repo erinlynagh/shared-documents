@@ -12,7 +12,7 @@ so my skincare routine is basically as follows:
 1. wash face 
 2. toner (i use 7% gycolic acid at night, alternating with retinoids, once or twice a week)*
 3. water based serums (hyaluronic acid, niacinamide, vitamin c (mornings only), barrier serum), sometimes i'll do a face mask for fun at this point too
-4. [retinoid serum/cream](https://www.youtube.com/watch?v=e6Z5Vr7uSiA) (only at night, 5 times a week alternating with the toner, less with a stronger retinoid)*
+4. [retinoid serum/cream](https://www.youtube.com/watch?v=e6Z5Vr7uSiA) (only at night, 4/5 times a week alternating with the toner, less with a stronger retinoid)*
 5. moisturize
 6. sunscreen (mornings)
 
@@ -26,33 +26,34 @@ I personally get a lot of satisfaction out of having a long as routine and hones
 
 I'm not sure where else to mention this so I'll throw in that [Paula's Choice Ingredient Dictionary](https://www.paulaschoice.com/ingredient-dictionary) and [INCIDecoder](https://incidecoder.com/) are really great resources when buying skincare products. I usually check the ingredients of what I buy in there first to see how I feel about it. Everything that I'm going to recommend here I've looked up the ingredients of. You should also consider the percentage of each active, like is it 2% niacinamide or is it 10%, it makes a difference. **Also avoid fragrances.**
 
-If you want a more simple or advanced routine [there is a lot of good content on YouTube on how to create a skincare routine](https://www.youtube.com/results?search_query=how+to+build+a+skincare+routine) but in general you should always wear sunscreen outdoors (especially if the [UV index](https://en.wikipedia.org/wiki/Ultraviolet_index) in your area is above 3 and you're white), wash your face and moisturize. From there retinoids are probably the best for most concerns, then maybe add in a AHA toner or more serums. It really depends what you need personally. [This video seems good for a crash course](https://www.youtube.com/watch?v=eEanU3wxMV4).
+If you want a more simple or advanced routine [there is a lot of good content on YouTube on how to create a skincare routine](https://www.youtube.com/results?search_query=how+to+build+a+skincare+routine) but in general you should always wear sunscreen outdoors (especially if the [UV index](https://en.wikipedia.org/wiki/Ultraviolet_index) in your area is above 3 and you're white), wash your face and moisturize. From there retinoids are probably the best for most concerns, then maybe add in a AHA toner or more serums. It really depends what you need personally. [This video seems good for a crash course](https://www.youtube.com/watch?v=eEanU3wxMV4). 
 
 ## Routine
 
-You don't have to use everything 2x a day every day. If your skin is irritated you might only wash it at nights. Also everything should be vegan.
+You don't have to use everything 2x a day every day. If your skin is irritated you might only wash it at nights, for example. I would start by just washing my face, moisturizing and sunscreen, and then add slowly add products one at a time based on what your goals are and how much you enjoy doing all this!!
 
-Okay with that being said here are the products I use personally:
+Okay with that being said here are the products I use personally (also everything should be vegan):
 
 ### 0. Waterproof Makeup and Sunscreen Removal
 
-also known as a [double cleanse](https://www.nytimes.com/wirecutter/reviews/advice-double-cleansing/), depending on how waterproof your sunscreen/makeup is you may or may not just be able to wash it off easily with your face wash and can skip this step. for makeup removal I really like these oil based cleansers, you basically just rub it on your skin and then wash it off with face wash, and it makes less waste too. You can also use micellar water, it's cheap, but I personally fond of the oils, especially around the eyes where cotton pads can irritate me:
+also known as a [double cleanse](https://www.nytimes.com/wirecutter/reviews/advice-double-cleansing/), depending on how waterproof your sunscreen/makeup is you may or may not just be able to wash it off easily with your face wash and can skip this step. for makeup removal I really like these oil based cleansers, you basically just rub it on your skin and then wash it off with water, and it makes less waste too compared to non-reusable cotton pads. You can also use micellar water, it's cheap, but I personally fond of the oils, especially around the eyes where cotton pads can irritate me:
 - [Holy Hydration! Makeup Melting Cleansing Balm](https://www.elfcosmetics.com/jumbo-holy-hydration-makeup-melting-cleansing-balm/57376.html) this is what I use, it lasts for a long time 
 - [APRILSKIN - Carotene IPMP Hydramelt Cleansing Balm | YesStyle](https://www.yesstyle.com/en/aprilskin-carrotene-ipmp-hydramelt-cleansing-balm-90ml/info.html/pid.1123976504) heard good things, but haven't tried
 - [SKIN1004 - Madagascar Centella Light Cleansing Oil](https://www.yesstyle.com/en/skin1004-madagascar-centella-light-cleansing-oil-200ml/info.html/pid.1077182361)
 - [Garnier Balms](https://www.garnierusa.com/about-our-brands/skin-care/makeup-cleansing-balm) cheap and widely available at walmart
-- [Garnier Micellar Water](https://www.garnierusa.com/about-our-brands/skin-care/micellar-cleansing-water/micellar-cleansing-water-all-in-1-waterproof) (i used to use this and it does work fine I just like the oil more, influencers online prefer other brands)
+- [Garnier Micellar Water](https://www.garnierusa.com/about-our-brands/skin-care/micellar-cleansing-water/micellar-cleansing-water-all-in-1-waterproof) (i used to use this and it does work fine I just like the oil more, influencers online prefer other brands like Bioderma but more $$$)
 
 ### 1. Face Wash
 
-so for face wash I really like these right now, but honestly anything works fine. I'm sure whatever you're using right now is great. *One important tip, let it set on your face for a minute before you wash it off! it works better if you let it do it's thing for a while.*
+One important tip, let it sit on your face for a minute before you wash it off! it works better if you let it do it's thing for a while. I prefer gentler ones but some of the most viral products have tons of actives like LHA and stuff.
 - [Soothing Azelaic Acid Cleanser](https://www.goodmolecules.com/s/good-molecules-soothing-azelaic-acid-cleanser-120ml) ([Azelaic Acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-azelaic-acid.html?q=Azelaic%20Acid&fdid=ingredients) this *does not foam!!* but I absolutely love it, my skin feels so good after I wash it off after letting it sit for a minute. Really great for me!)
-- [Gentle Cleanser](https://curology.com/shop/the-cleanser) (this one foams, it's simple, i liked it, [nice ingredients](https://www.paulaschoice.com/share?s=3dd3c))
-- [SKIN1004 - Madagascar Centella Ampoule Foam](https://www.yesstyle.com/en/skin1004-madagascar-centella-ampoule-foam-125ml/info.html/pid.1077182367) 
+- [Gentle Cleanser](https://curology.com/shop/the-cleanser) (this one foams, it's simple, i liked it
+- [SKIN1004 - Madagascar Centella Ampoule Foam](https://www.yesstyle.com/en/skin1004-madagascar-centella-ampoule-foam-125ml/info.html/pid.1077182367)
+- [Arencia - Fresh Green Rice Mochi Cleanser](https://www.yesstyle.com/en/arencia-fresh-green-rice-mochi-cleanser-120g/info.html/pid.1133101178)
 
 ### 2. Toners/Exfoliating
 
-[toners](https://www.byrdie.com/what-does-toner-do) are basically prepping your skin for serums but they also do other things like exfoliate or brighten or whatever, like serums. I use the Glycolic acid once or twice a week. As mentioned [AHA](https://www.paulaschoice.com/ingredient-dictionary/ingredient-bha-beta-hydroxy-acid.html?q=BHA%20%28Beta%20Hydroxy%20Acid%29&fdid=ingredients) will cause sunburns so it's best to use them at night and in combination with sunscreen in the morning. Another thing to do is to [patch test](https://theordinary.com/en-us/patch-test.html) them before you start using it.
+[toners](https://www.byrdie.com/what-does-toner-do) are hydrating and prepping your skin for serums but they also do other things like exfoliate or brighten or whatever. (kind of like serums, honestly the distinction does seem kind of blurry at times for me). I use the Glycolic acid once or twice a week. As mentioned [AHA](https://www.paulaschoice.com/ingredient-dictionary/ingredient-bha-beta-hydroxy-acid.html?q=BHA%20%28Beta%20Hydroxy%20Acid%29&fdid=ingredients) will cause sunburns so it's best to use them at night and in combination with sunscreen in the morning. Another thing to do is to [patch test](https://theordinary.com/en-us/patch-test.html) them before you start using it.
 - [Glycolic Acid 7% Exfoliating Toner](https://theordinary.us.com/products/glycolic-acid-7-exfoliating-toner) (Cheap, really good and highly rated, will last months)
 - [Saccharomyces Ferment 30% Milky Toner](https://theordinary.us.com/products/saccharomyces-ferment-30-milky-toner) 
 - [Good Molecules Niacinamide Brightening Toner 120ml | Good Molecules](https://www.goodmolecules.com/s/good-molecules-niacinamide-brightening-toner-120ml)
@@ -60,7 +61,7 @@ so for face wash I really like these right now, but honestly anything works fine
 
 ### 3. Water Based Serums 
 
-Water based serums do a bunch of different things and you should do your own research to see what you need based on your goals but right now I like using [Niacinamide](https://www.paulaschoice.com/ingredient-dictionary/ingredient-niacinamide.html?q=Niacinamide&fdid=ingredients) for shrinking pores. I also use vitamin C + E + Ferulic in the mornings, [they are anti-oxidants](https://www.paulaschoice.com/ingredient-dictionary/ingredient-ferulic-acid.html?q=Ferulic%20Acid&fdid=ingredients) and help with skin tone but it irritates skin so I use it in the mornings and use the GA toner and retinoid at night, as those are also irritating. I also like [hyaluronic acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-hyaluronic-acid.html?q=hyaluronic%20acid&fdid=ingredients) basically traps moisture on your skin and stops it from evaporating. 
+Water based serums do a bunch of different things and you should do your own research to see what you need based on your goals. Right now I like using [Niacinamide](https://www.paulaschoice.com/ingredient-dictionary/ingredient-niacinamide.html?q=Niacinamide&fdid=ingredients) for shrinking pores. I also use vitamin C + E + Ferulic in the mornings, [they are anti-oxidants](https://www.paulaschoice.com/ingredient-dictionary/ingredient-ferulic-acid.html?q=Ferulic%20Acid&fdid=ingredients) and help with skin tone but it irritates skin so I use it in the mornings and use the GA toner and retinoid at night, as those are also irritating. I also like [hyaluronic acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-hyaluronic-acid.html?q=hyaluronic%20acid&fdid=ingredients) basically traps moisture on your skin and stops it from evaporating. 
 
 I also find that niacinamide and hyaluronic acid are in a lot of other products (like toners and moisturizers) so depending on what you are using you might not need them at all. 
 
@@ -81,9 +82,12 @@ Vitamin C can be hard to stabilize and it's volatile so make sure you are buying
 
 ### 4. Retinoids
 
-[retinoids are next](https://www.paulaschoice.com/ingredient-dictionary/ingredient-retinoids.html?q=retionol&fdid=ingredients). They are basically the holy grail of modern anti-aging skincare, but also great for acne and skin texture and a bunch of other stuff. If you're going to use anything, it should probably be sunscreen. But this is probably the second most important active for most concerns. You only really need them once you are in your late 20s because that's when natural collagen production in the skin starts to go down, or so I've heard. There are a bunch of different formulations that determine how quickly and how it turns into retinoic acid on your skin. [watch this for good information](https://www.youtube.com/watch?v=e6Z5Vr7uSiA). The ordinary one I use specifies to use it after water based serums so that is why it is after. Like vitamin c it can be hard to stabilize so only buy it from reputable brands.
+[retinoids are next](https://www.paulaschoice.com/ingredient-dictionary/ingredient-retinoids.html?q=retionol&fdid=ingredients). They are basically the holy grail of modern anti-aging skincare, but also great for acne and skin texture and a bunch of other stuff. If you're going to use anything, it should probably be sunscreen. But this is probably the second most important active for most concerns. You only really need them once you are in your late 20s/early 30s because that's when natural collagen production in the skin starts to go down, or so I've heard. There are a bunch of different formulations that determine how quickly and how it turns into retinoic acid on your skin. [watch this for good information](https://www.youtube.com/watch?v=e6Z5Vr7uSiA). The ordinary one I use specifies to use it after water based serums so that is why it is after. Like vitamin c it can be hard to stabilize so only buy it from reputable brands.
 
 When you start using these it can be good to work up to the more powerful serums, start with a lower % and use it every other or every third day, and then if you skin tolerates it start using it more and move up in % slowly. [This video](https://www.youtube.com/watch?v=tEB5qSTcHck) has some good tips, but you can probably ignore his $100 skincare product recommendations.
+
+You'll also want to look into the sandwhich method, which is where you moisturize, then wait 20 minutes, apply the retinoid, and then moisturize again. Especially with a strong one!!
+
 - [The Ordinary Granactive Retinoid 2% Emulsion](https://theordinary.us.com/products/granactive-retinoid-2-emulsion)
     - this is what I'm using right now, **it has to go in the fridge once opened**
 - [The Ordinary Retinol 1% in Squalane](https://theordinary.us.com/products/retinol-1-in-squalane)
@@ -126,7 +130,6 @@ Consider bringing an umbrella with you or wearing a hat if you are going outside
     - [Good Molecules Instant Cleansing Balm 75g | Good Molecules](https://www.goodmolecules.com/s/good-molecules-instant-cleansing-balm-75g)
     - [Dr. Althea - Pure Grinding Cleansing Balm | YesStyle](https://www.yesstyle.com/en/dr-althea-pure-grinding-cleansing-balm-50ml/info.html/pid.1128213530)
     - [Glycolipid Cream Cleanser – The Ordinary](https://theordinary.us.com/products/glycolipid-cream-cleanser)
-    - [Arencia - Fresh Green Rice Mochi Cleanser](https://www.yesstyle.com/en/arencia-fresh-green-rice-mochi-cleanser-120g/info.html/pid.1133101178)
 - Toners:
     - [SKIN PERFECTING 2% BHA Liquid Exfoliant | Paula's Choice](https://www.paulaschoice.com/skin-perfecting-2pct-bha-liquid-exfoliant/201-2010.html)
     - [AHA 30% + BHA 2% Peeling Solution – The Ordinary](https://theordinary.us.com/products/aha-30-bha-2-peeling-solution)
