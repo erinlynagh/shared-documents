@@ -8,6 +8,7 @@
   - Might stop if it irritates skin 
 - Gylcolic Acid Toner OR Paula's Choice Skin Perfecting ✅ ($13.50/240ml)
 - Deep Water Surge Serum ✅ ($19.30/50g)
+  - Might not use this honestly if the moisturizers are enough
 - Some Vitamin C Serum ✅
   - Myabe eqqualberryone one, maybe a C + E + Ferulic Acid Serum, maybe homemade even 
 - Retinal (with an A!!) at 0.1% or 0.2% (The Ordinary, Naturium) ✅

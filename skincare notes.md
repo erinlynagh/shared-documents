@@ -8,14 +8,13 @@ Also the ordinary website that I linked is super overpriced, compare https://the
 
 so my skincare routine is basically as follows:
 
-0. double cleanse/remove waterproof makeup (at night when needed) 
+0. double cleanse/remove waterproof makeup/sunscreen (at night when needed) 
 1. wash face 
 2. toner (i use 7% gycolic acid at night, alternating with retinoids, once or twice a week)*
-3. hyaluronic acid
-4. water based serums (niacinamide, vitamin c (mornings only), barrier serum), sometimes i'll do a face mask for fun at this point too
-5. [retinoid serum/cream](https://www.youtube.com/watch?v=e6Z5Vr7uSiA) (only at night, 5 times a week alternating with the toner, less with a stronger retinoid)*
-6. moisturize
-7. sunscreen (mornings)
+3. water based serums (hyaluronic acid, niacinamide, vitamin c (mornings only), barrier serum), sometimes i'll do a face mask for fun at this point too
+4. [retinoid serum/cream](https://www.youtube.com/watch?v=e6Z5Vr7uSiA) (only at night, 5 times a week alternating with the toner, less with a stronger retinoid)*
+5. moisturize
+6. sunscreen (mornings)
 
 *these cause your skin to sunburn easier, [use sunscreen with them and anything with Retinoids or AHA](https://www.paulaschoice.com/ingredient-dictionary/ingredient-aha.html), but apparently BHA not as much maybe that's better for summer
 
@@ -28,8 +27,6 @@ I personally get a lot of satisfaction out of having a long as routine and hones
 I'm not sure where else to mention this so I'll throw in that [Paula's Choice Ingredient Dictionary](https://www.paulaschoice.com/ingredient-dictionary) and [INCIDecoder](https://incidecoder.com/) are really great resources when buying skincare products. I usually check the ingredients of what I buy in there first to see how I feel about it. Everything that I'm going to recommend here I've looked up the ingredients of. You should also consider the percentage of each active, like is it 2% niacinamide or is it 10%, it makes a difference. **Also avoid fragrances.**
 
 If you want a more simple or advanced routine [there is a lot of good content on YouTube on how to create a skincare routine](https://www.youtube.com/results?search_query=how+to+build+a+skincare+routine) but in general you should always wear sunscreen outdoors (especially if the [UV index](https://en.wikipedia.org/wiki/Ultraviolet_index) in your area is above 3 and you're white), wash your face and moisturize. From there retinoids are probably the best for most concerns, then maybe add in a AHA toner or more serums. It really depends what you need personally. [This video seems good for a crash course](https://www.youtube.com/watch?v=eEanU3wxMV4).
-
-for steps 3 & 4 there seem to be multiple schools of thought on what order to do. Most suggest low pH to high pH or thinnest to thickest.
 
 ## Routine
 
@@ -60,17 +57,14 @@ so for face wash I really like these right now, but honestly anything works fine
 - [Good Molecules Niacinamide Brightening Toner 120ml | Good Molecules](https://www.goodmolecules.com/s/good-molecules-niacinamide-brightening-toner-120ml)
 - [EQQUALBERRY - Swimming Pool Toner 300ml](https://www.yesstyle.com/en/info.html/pid.1134047313)
 
-### 3. Hyaluronic Acid
+### 3. Water Based Serums 
 
-[hyaluronic acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-hyaluronic-acid.html?q=hyaluronic%20acid&fdid=ingredients) basically traps moisture on your skin and stops it from evaporating. There are a few different kind of moisturizers, [read more here](https://www.cerave.com/skin-smarts/skincare-tips-advice/emollient-vs-humectant-vs-occlusive). I use all of them in my skincare routine from time to time. 
-- [Hyaluronic Acid 2% + B5 with Ceramides](https://theordinary.us.com/products/hyaluronic-acid-2-b5-with-ceramides) (this is what I use, cheap and feels nice)
-- [Hyaluronic Acid Serum](https://www.goodmolecules.com/s/good-molecules-hyaluronic-acid-serum-30ml)
+Water based serums do a bunch of different things and you should do your own research to see what you need based on your goals but right now I like using [Niacinamide](https://www.paulaschoice.com/ingredient-dictionary/ingredient-niacinamide.html?q=Niacinamide&fdid=ingredients) for shrinking pores. I also use vitamin C + E + Ferulic in the mornings, [they are anti-oxidants](https://www.paulaschoice.com/ingredient-dictionary/ingredient-ferulic-acid.html?q=Ferulic%20Acid&fdid=ingredients) and help with skin tone but it irritates skin so I use it in the mornings and use the GA toner and retinoid at night, as those are also irritating. I also like [hyaluronic acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-hyaluronic-acid.html?q=hyaluronic%20acid&fdid=ingredients) basically traps moisture on your skin and stops it from evaporating. 
 
-### 4. Other (water based) Serums 
+I also find that niacinamide and hyaluronic acid are in a lot of other products (like toners and moisturizers) so depending on what you are using you might not need them at all. 
 
-water based serums do a bunch of different things and you should do your own research to see what you like but right now I like using [Niacinamide](https://www.paulaschoice.com/ingredient-dictionary/ingredient-niacinamide.html?q=Niacinamide&fdid=ingredients) for shrinking pores. I also use vitamin C + E + Ferulic in the mornings, [they are anti-oxidants](https://www.paulaschoice.com/ingredient-dictionary/ingredient-ferulic-acid.html?q=Ferulic%20Acid&fdid=ingredients) and help with skin tone but it irritates skin so I use it in the mornings and use the GA toner and retinoid at night, as those are also irritating. ~~I also got some [PDRN](https://www.paulaschoice.com/ingredient-dictionary/ingredient-polydeoxyribonucleotide.html?q=pdrnm&fdid=ingredients) from a friend for christmas and it seems okay!~~ I don't think it's worth the money
 - [The Ordinary Niacinamide 10% + Zinc 1%, Smoothing Serum for Blemish-Prone Skin](https://theordinary.us.com/products/niacinamide-10-zinc-1)
-    - This is actually a little strong for me maybe, I am going to try a 5% nexthttps://github.com/erinlynagh/personal/blob/master/skincare/skincare%20notes.md
+    - This is actually a little strong for me maybe, I am going to try a 5% next
 - [5% Niacinamide Serum with Ectoin](https://www.goodmolecules.com/s/good-molecules-5-niacinamide-serum-with-ectoin-30ml)
 - [Soothing & Barrier Support Serum](https://theordinary.com/en-us/soothing-barrier-support-serum-100634.html)
 - [Vitamin C + E + Ferulic Serum](https://www.elfcosmetics.com/bright-icon-vitamin-c--e--ferulic-serum/57615.html)
@@ -78,14 +72,15 @@ water based serums do a bunch of different things and you should do your own res
     - [Vitamin C](https://www.paulaschoice.com/ingredient-dictionary/ingredient-vitamin-c.html?q=vitamin%20c&fdid=ingredients)
     - [Vitamin E](https://www.paulaschoice.com/ingredient-dictionary/ingredient-vitamin-e.html?q=vitamin%20e&fdid=ingredients)
     - [Ferulic Acid](https://www.paulaschoice.com/ingredient-dictionary/ingredient-ferulic-acid.html?q=Ferulic%20Acid&fdid=ingredients)
--~~[PDRN Essence 100](https://globalvt-cosmetics.com/products/pdrn-essence-100)~~
 - [Poems from the Lab Vitamin C](https://poemsfromthelab.com/) good reviews
+- [Hyaluronic Acid 2% + B5 with Ceramides](https://theordinary.us.com/products/hyaluronic-acid-2-b5-with-ceramides) (this is what I use, cheap and feels nice)
+- [Hyaluronic Acid Serum](https://www.goodmolecules.com/s/good-molecules-hyaluronic-acid-serum-30ml)
 
 Vitamin C can be hard to stabilize and it's volatile so make sure you are buying it from a brand that cares about that. Also Ascorbic Acid works better than deriviatives. It was expensive for a long time because a company owned the patent for the best formulations or ingredient mix or something but it expired recently. 
 
-### 5. Retinoids
+### 4. Retinoids
 
-[retinoids are next](https://www.paulaschoice.com/ingredient-dictionary/ingredient-retinoids.html?q=retionol&fdid=ingredients). They are basically the holy grail of modern anti-again skincare, if you're going to use anything, it should be sunscreen. But this is probably the second most important. You only really need them if you are over the age of 25 because that's when natural collagen production in the skin starts to go down, or so I've heard. There are a bunch of different formulations that determine how quickly and how it turns into retinoic acid on your skin. [watch this for good information](https://www.youtube.com/watch?v=e6Z5Vr7uSiA). The ordinary one I use specifies to use it after water based serums so that is why it is after. Like vitamin c it can be hard to stabilize so only buy it from reputable brands.
+[retinoids are next](https://www.paulaschoice.com/ingredient-dictionary/ingredient-retinoids.html?q=retionol&fdid=ingredients). They are basically the holy grail of modern anti-aging skincare, but also great for acne and skin texture and a bunch of other stuff. If you're going to use anything, it should probably be sunscreen. But this is probably the second most important active for most concerns. You only really need them once you are in your late 20s because that's when natural collagen production in the skin starts to go down, or so I've heard. There are a bunch of different formulations that determine how quickly and how it turns into retinoic acid on your skin. [watch this for good information](https://www.youtube.com/watch?v=e6Z5Vr7uSiA). The ordinary one I use specifies to use it after water based serums so that is why it is after. Like vitamin c it can be hard to stabilize so only buy it from reputable brands.
 
 When you start using these it can be good to work up to the more powerful serums, start with a lower % and use it every other or every third day, and then if you skin tolerates it start using it more and move up in % slowly. [This video](https://www.youtube.com/watch?v=tEB5qSTcHck) has some good tips, but you can probably ignore his $100 skincare product recommendations.
 - [The Ordinary Granactive Retinoid 2% Emulsion](https://theordinary.us.com/products/granactive-retinoid-2-emulsion)
@@ -95,20 +90,17 @@ When you start using these it can be good to work up to the more powerful serums
 - [Retinal 0.2% Emulsion](https://theordinary.com/en-us/retinal-02-emulsion-100646.html)
     - This stuff is really strong, I'd start with the granactive one or the 1% even and work up to it
 
-### 6. Moisturize
+### 5. Moisturize
 
-moisturizing is so important too. I don't think it's very hard to find one that will work well for you, just look at the ingredients and see if it's what you want. I'll recommend a few here. They come in lighter or heavier depending on how dry your skin is and with different actives. You could also do an under eye cream at this point
-- [Pacifica Face Cream - Vegan Ceramide Barrier Cream w/Niacinamide & Shea Butter](https://www.pacificabeauty.com/collections/vegan-ceramide/products/vegan-ceramide-barrier-face-cream)
-    - I actually really like this, a little goes a long way, it's fragrance free, simple ingredients, very rich and creamy
+moisturizing is so important too, although i've heard that people with oily skin might not need it. I'll recommend a few here. They come in lighter or heavier depending on how dry/oily your skin is and with different actives. There are a few different kinds of moisturizers, [read more here](https://www.cerave.com/skin-smarts/skincare-tips-advice/emollient-vs-humectant-vs-occlusive). I use all of them in my skincare routine from time to time. 
 - [Holy Hydration! Face Cream Fragrance Free](https://www.elfcosmetics.com/holy-hydration-face-cream-fragrance-free/82828.html)
 - [The Ordinary Natural Moisturizing Factors + Hyaluronic Acid, Lightweight Hydrator for Skin Barrier Support & Hydration](https://theordinary.us.com/products/natural-moisturizing-factors-phytoceramides)
 - [345 Relief Cream](https://doctoraltheaglobal.com/collections/moisturizers-creams/products/345-relief-cream) this one has lots of actives
 - [SKIN1004 - Madagascar Centella Soothing Cream](https://www.yesstyle.com/en/skin1004-madagascar-centella-soothing-cream-75ml/info.html/pid.1113064810)
-- Eye Creams
-    - [Holy Hydration! Eye Cream](https://www.elfcosmetics.com/holy-hydration-eye-cream/57014.html) 
-    - [Vegan Collagen Eye Serum](https://www.axis-y.com/products/vegan-collagen-eye-serum)
+- [Pacifica Face Cream - Vegan Ceramide Barrier Cream w/Niacinamide & Shea Butter](https://www.pacificabeauty.com/collections/vegan-ceramide/products/vegan-ceramide-barrier-face-cream)
+    - This one is okay, its a little too thick maybe and doesn't absorb easily into damp skin imo
 
-### 7. Sunscreen
+### 6. Sunscreen
 
 for sunscreen you're basically just looking for something **with as high of an spf (SPF50+) as possible** while having no/low white-cast and broad spectrum protection. new chemical sunscreens (like Korean sunscreens) can be better for that than the old school ones which use minerals like zinc oxide for those goals while having the same SPF, if not more. Also do not use spray sunscreens, the creams are best.
 - [SKIN1004 - Madagascar Centella Hyalu-Cica Water-Fit Sun Serum Jumbo Bundle Set | YesStyle](https://www.yesstyle.com/en/skin1004-madagascar-centella-hyalu-cica-water-fit-sun-serum-50ml/info.html/pid.1113888108)
@@ -120,7 +112,7 @@ To learn more about sunscreens I really liked [this video](https://www.youtube.c
 
 ### Other Stuff
 
-I've started doing a [reedle shot](https://globalvt-cosmetics.com/products/vt-reedle-shot-300) just for fun. I don't really have thoughts on it yet but one of the problems with actives is getting them into the skin, as products like [this](https://theordinary.us.com/products/multi-active-delivery-essence) show.
+I've started doing a [reedle shot](https://globalvt-cosmetics.com/products/vt-reedle-shot-300) just for fun. I don't really have thoughts on it yet but one of the problems with actives is getting them into the skin, as products like [this](https://theordinary.us.com/products/multi-active-delivery-essence) show. Update, after using it a few times I found it irritating :(
 
 Lastly, a couple nights a week, less even, i'll do something called [slugging](https://health.clevelandclinic.org/slugging) which is where you put a thin layer of [petroleum jelly](https://www.paulaschoice.com/ingredient-dictionary/ingredient-petrolatum.html) over your face before you go to sleep. I'll also do a lip mask if I feel like I need it.
 
