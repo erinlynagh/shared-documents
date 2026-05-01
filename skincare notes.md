@@ -18,7 +18,7 @@ so my skincare routine is basically as follows:
 
 *these cause your skin to sunburn easier, [use sunscreen with them and anything with Retinoids or AHA](https://www.paulaschoice.com/ingredient-dictionary/ingredient-aha.html), but apparently BHA not as much maybe that's better for summer
 
-The most important thing to wear sunscreen, wash your face, and moisturize. Everything else depends on your goals. Retinoids are generally great for evverything, anti-aging, skin texture, acne. Niacinamide is good pores and anti-aging and barrier support and etc. I generally like to stick to the actives listed here (Vitamins ABC + Exfoliants) but if you have your own concerns, like dark spots or oil, do your own research to find what has worked for others.
+The most important thing to wear sunscreen, wash your face, and moisturize. Everything else depends on your goals. Retinoids are generally great for evverything, anti-aging, skin texture, acne. Niacinamide is good pores and anti-aging and barrier support and etc. I generally like to stick to the actives listed here (**Vitamins ABC + Hydration + Exfoliants**) but if you have your own concerns, like dark spots or oil, do your own research to find what has worked for others.
 
 I basically will say that if you want to do the serums like me it's probably better to choose a simple moisturizer and face wash without as many active ingredients (actives) as you're kind of already controlling it. Like for example [this moisturizer](https://doctoraltheaglobal.com/collections/moisturizers-creams/products/345-relief-cream) has niacinamide and hyaluronic acid in it already so maybe that will be enough for you 🤷‍♀️
 
