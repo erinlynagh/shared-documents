@@ -127,9 +127,9 @@ To learn more about sunscreens I really liked [this video](https://www.youtube.c
 
 ### Other Stuff
 
-I've started doing a [reedle shot](https://globalvt-cosmetics.com/products/vt-reedle-shot-300) just for fun. I don't really have thoughts on it yet but one of the problems with actives is getting them into the skin, as products like [this](https://theordinary.us.com/products/multi-active-delivery-essence) show. Update, after using it a few times I found it irritating :(
+a couple nights a week, less even, i'll do something called [slugging](https://health.clevelandclinic.org/slugging) which is where you put a thin layer of [petroleum jelly](https://www.paulaschoice.com/ingredient-dictionary/ingredient-petrolatum.html) over your face before you go to sleep. I'll also do a lip mask if I feel like I need it.
 
-Lastly, a couple nights a week, less even, i'll do something called [slugging](https://health.clevelandclinic.org/slugging) which is where you put a thin layer of [petroleum jelly](https://www.paulaschoice.com/ingredient-dictionary/ingredient-petrolatum.html) over your face before you go to sleep. I'll also do a lip mask if I feel like I need it.
+I've started doing a [reedle shot](https://globalvt-cosmetics.com/products/vt-reedle-shot-300) just for fun. I don't really have thoughts on it yet but one of the problems with actives is getting them into the skin, as products like [this](https://theordinary.us.com/products/multi-active-delivery-essence) show. Update, after using it a few times I found it irritating :(
 
 Consider bringing an umbrella with you or wearing a hat if you are going outside (lol) to a place with no shade or for an extended period of time.
 
