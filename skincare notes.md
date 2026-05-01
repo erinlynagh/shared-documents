@@ -67,6 +67,8 @@ I also find that niacinamide and hyaluronic acid are in a lot of other products 
 
 Also wait a minute between applying different serums, let them absorb a bit before applying a new one.
 
+For order of application I'd say do either low pH to high pH or thinnest to thickest.
+
 - [The Ordinary Niacinamide 10% + Zinc 1%, Smoothing Serum for Blemish-Prone Skin](https://theordinary.us.com/products/niacinamide-10-zinc-1)
     - This is actually a little strong for me maybe, I am going to try a 5% next
 - [5% Niacinamide Serum with Ectoin](https://www.goodmolecules.com/s/good-molecules-5-niacinamide-serum-with-ectoin-30ml)
